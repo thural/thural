@@ -1,4 +1,6 @@
 ## QUIT THE RAT RACE
+### there is no AI Bubble:
+youtu.be/wDBy2bUICQY?si=cBBHIrdZfSRfTcX-
 
 anthropic.com/research/labor-market-impacts
 
