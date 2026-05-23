@@ -1,5 +1,13 @@
 ## QUIT THE RAT RACE
-### there is no AI Bubble:
+
+### about me 
+
+I love Programming, I hate the Framework
+
+I am a Creator, I am not the Utility
+
+### some insight
+
 youtu.be/wDBy2bUICQY?si=cBBHIrdZfSRfTcX-
 
 anthropic.com/research/labor-market-impacts
