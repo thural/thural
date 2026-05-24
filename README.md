@@ -1,14 +1,6 @@
 ## QUIT THE RAT RACE
 
-### about me 
-
-I love Programming, I hate the Framework
-
-I am a Creator, I am not the Utility
-
-### some insight
-
-youtu.be/wDBy2bUICQY?si=cBBHIrdZfSRfTcX-
+### life begins when one finds real purpose
 
 anthropic.com/research/labor-market-impacts
 
